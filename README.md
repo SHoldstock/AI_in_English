@@ -1,1 +1,1 @@
-Citation: Holdstock, S. (2026) ‘Researching Secondary English Teachers' Views on the Pedagogical Affordances of AI: An Interactive Collection of Research Stories’. Zenodo. Available at: https://doi.org/10.5281/zenodo.21381080.
+Citation: Holdstock, S. (2026) ‘Researching Secondary English Teachers' Views on the Pedagogical Affordances of AI: An Interactive Collection of Research Stories’. Zenodo. Available at: https://doi.org/10.5281/zenodo.21381079.
